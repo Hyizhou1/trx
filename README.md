@@ -28,4 +28,14 @@
 ![image](https://github.com/mmmrp/trx/assets/72646062/f7c2ecdf-ea05-4fa3-981d-b3a6fdd73147)
 ![image](https://github.com/mmmrp/trx/assets/72646062/3f564d1d-602f-4828-9017-aa679d852bc1)
 
+# 另外还售TG验群,算账,代摇快三牛牛三公推机器人，telegram 验群群组:[点我进入群组👈👈👈](https://t.me/laotie8)
+
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/e2584edf-ba01-4424-ae06-7e6600f7d88f)
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/992f587d-4fbc-4d2f-8b92-091a0376fae8)
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/1a0a7113-01a6-423d-98dc-bb469b3d2e0d)
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/c51e85d9-4c24-4a08-abd8-341ef4c2988b)
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/1685753e-1eb0-4dc0-9d30-e0e51ec98473)
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/25b4c2d2-b3e9-4ccc-991b-a67afd04eee1)
+![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/63230561-afeb-4381-a28b-c9a5138d1df7)
+
 
