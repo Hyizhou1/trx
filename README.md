@@ -1,6 +1,6 @@
 # trx兑换 能量租赁 tg会员 钱包靓号商城 钱包监控
 # tg机器人  trx能量商城会员兑换 
-# 自动化USDT兑换TRX的Telegram机器人 完整功能
+# 自动化USDT兑换TRX的Telegram机器人 完整功能 https://t.me/hongsx
 ### 体验群组 测试群组 https://t.me/trxtest2
 ### 体验机器人 https://t.me/trxtest2
 ### 联系我 https://t.me/hongsx
