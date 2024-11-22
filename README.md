@@ -1,4 +1,4 @@
-# trx兑换 能量租赁 tg会员 钱包靓号商城 钱包监控
+# trx兑换 能量租赁 tg会员 钱包靓号商城 钱包监控 机器人定制
 # tg机器人  trx能量商城会员兑换 
 # 自动化USDT兑换TRX的Telegram机器人 完整功能 https://t.me/hongsx
 ### 体验群组 测试群组 https://t.me/trxtest2
@@ -24,16 +24,10 @@
 14. 商城卡密功能，可自动购买，充值购买，批量上架，卡密加密等
 
 15. ![image](https://github.com/user-attachments/assets/840c6aff-7314-4231-8b47-875344b7c33b)
+![image](https://github.com/user-attachments/assets/17685483-ac06-4b27-bbfb-74dd80b85f30)
+![image](https://github.com/user-attachments/assets/14221f96-d884-4eef-acc3-85ac8e313250)
+![image](https://github.com/user-attachments/assets/143174e4-a126-4902-8a44-d8852c3ae47c)
+![image](https://github.com/user-attachments/assets/02735b00-3589-49c6-a5bf-0af2ff27593c)
 
-
-# 另外还售TG验群,算账,代摇快三牛牛三公推机器人，telegram 验群群组:[点我进入群组👈👈👈](https://t.me/laotie8)
-
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/e2584edf-ba01-4424-ae06-7e6600f7d88f)
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/992f587d-4fbc-4d2f-8b92-091a0376fae8)
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/1a0a7113-01a6-423d-98dc-bb469b3d2e0d)
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/c51e85d9-4c24-4a08-abd8-341ef4c2988b)
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/1685753e-1eb0-4dc0-9d30-e0e51ec98473)
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/25b4c2d2-b3e9-4ccc-991b-a67afd04eee1)
-![image](https://github.com/Hyizhou1/Tg_SuperSerch/assets/104135021/63230561-afeb-4381-a28b-c9a5138d1df7)
 
 
