@@ -24,9 +24,6 @@
 14. 商城卡密功能，可自动购买，充值购买，批量上架，卡密加密等
 
 15. ![image](https://github.com/mmmrp/trx/assets/72646062/88eba0ad-38b1-4b2d-bb59-fa582d49d52d)
-![image](https://github.com/mmmrp/trx/assets/72646062/178824e0-2c3b-4694-acc2-11840495c6a8)
-![image](https://github.com/mmmrp/trx/assets/72646062/f7c2ecdf-ea05-4fa3-981d-b3a6fdd73147)
-![image](https://github.com/mmmrp/trx/assets/72646062/3f564d1d-602f-4828-9017-aa679d852bc1)
 
 # 另外还售TG验群,算账,代摇快三牛牛三公推机器人，telegram 验群群组:[点我进入群组👈👈👈](https://t.me/laotie8)
 
