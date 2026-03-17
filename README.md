@@ -36,4 +36,7 @@
 <img width="730" height="821" alt="image" src="https://github.com/user-attachments/assets/81fbd6bd-509f-4667-ab80-89ce08d781e6" />
 <img width="748" height="381" alt="image" src="https://github.com/user-attachments/assets/0ecb79e7-a069-4f38-a5d3-8e47b45cae73" />
 
+## 联系方式
+
+如需了解详情或合作，请联系✈：`@hongsx`
 
